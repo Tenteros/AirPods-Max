@@ -1,1 +1,1 @@
-# AirPods-Max-adaptive-
+# AirPods-Max-adaptive
